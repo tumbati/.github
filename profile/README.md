@@ -32,7 +32,7 @@ We believe in collaboration and welcome contributions from the community. If you
 
 ## Contact Us
 
-Have questions, suggestions, or just want to say hello? Reach out to us at [contact@tumbati.com](mailto:contact@tumbati.com). We'd love to hear from you!
+Have questions, suggestions, or just want to say hello? Reach out to us at [info@tumbati.com](mailto:info@tumbati.com). We'd love to hear from you!
 
 ## Connect with Us
 
