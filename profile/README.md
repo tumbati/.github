@@ -1,6 +1,6 @@
 # Tumbati: Innovating Solutions through Technology
 
-Welcome to Tumbati – where technology meets innovation to create impactful solutions! 🚀
+Welcome to Tumbati – where ideas meet infinite possibilities! 🚀
 
 ## About Us
 
